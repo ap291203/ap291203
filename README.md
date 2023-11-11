@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **dp33211203@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Xqv_o0KOYWc4FvjJwJYVL_VupjRze4BB/view?usp=sharing](https://drive.google.com/file/d/1Xqv_o0KOYWc4FvjJwJYVL_VupjRze4BB/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
